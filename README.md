@@ -1,4 +1,6 @@
-![IMG-20180201-WA0050 (1)](https://github.com/ridhi0228/ridhi0228/assets/132190698/47e24b1f-c5d9-45b0-ab82-3ecb012cc324)
+
+![IMG-20180201-WA0050 (1)](https://github.com/ridhi0228/ridhi0228/assets/132190698/2bb72e9b-d489-4044-9cbf-1086c4517e68)
+
 
 
 
