@@ -1,7 +1,5 @@
 
-![IMG-20180201-WA0050 (1)](https://github.com/ridhi0228/ridhi0228/assets/132190698/2bb72e9b-d489-4044-9cbf-1086c4517e68)
-
-
+![IMG-20180201-WA0050 (1)](https://github.com/ridhi0228/ridhi0228/assets/132190698/f7e352ed-a9d7-411c-921a-55495fc3a132)
 
 
                                    
